@@ -1,4 +1,4 @@
-
+advanced Template for Canva for macOS - color correction and vector tools offers the most advanced Canva for macOS template, with color correction and vector tools. Ideal for
 
 
 
